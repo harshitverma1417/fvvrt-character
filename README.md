@@ -1,1 +1,0 @@
-# fvvrt-character
